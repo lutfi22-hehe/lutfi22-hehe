@@ -54,11 +54,3 @@
 <p>
   </p><h3 align="center">Support : Gimme 5k so i can buy BATAGOR</h3>
 <p></p>
-
-
-<br>
-<br>
-<br>
-<br>
-<hr>
-<p>Me: <a>What Are you doing here?</a></p> 
